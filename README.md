@@ -2,7 +2,7 @@
 
 ---
 
-## Chapter Zero: For Ho Ho Whom the Bell Told?
+## Chapter Zero: For Ho Ho Whom the Bell Told
 
 "Ew, why are they wet?" groans an approaching Corykidios Seio Clokydaros as he casts you an absent glance. "Here, uh, for you," he says as he lifts the dripping lists your way, "or whoever, really. I think they thought they were writing Santa Clause." He yawns, somehow peeking through your screen at the room around you, "I knew it would be boring. Just take the litter of little letta letters, yeah?"
 
